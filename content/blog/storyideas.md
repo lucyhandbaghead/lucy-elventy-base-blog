@@ -1,3 +1,6 @@
+---
+draft: true
+---
 Turn your philosophy ideas into stories and characters
 - The Witch of 'Negative Possibility' / some kind of guru thing
 - 'System's Vomit' - Pretty Big Handbag is sick with capitalism or something (can have a personified capitalism character(s) - Charlie Coinface, Barry Billhead, Franky Fiverfeatures)

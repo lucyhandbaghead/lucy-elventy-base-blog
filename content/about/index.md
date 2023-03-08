@@ -1,18 +1,18 @@
 ---
 layout: layouts/base.njk
 eleventyNavigation:
-  key: About Lucy
+  key: About
   order: 3
 ---
 # About Lucy Handbaghead
 
 Lucy Handbaghead is a woman with a handbag for a head.
 
-She lives in The Pretty Big Handbag.
+She lives (kind of happily) with her mum Linda in The Pretty Big Handbag.
 
-And they live (kind of happily) in The Pretty Big Handbag.
+The Pretty Big Handbag is pretty much what it sounds like - a massive handbag hurtling through space.
 
-You'll find stories about Lucy, her mum and a bunch of other people with bags and odd objects for heads on this little website.
+On this little website you'll find stories about Lucy, her mum and all the other jolly (and not so jolly) people who live in The Pretty Big Handbag.
 
 I hope you enjoy reading them as much as I enjoy writing them.
 

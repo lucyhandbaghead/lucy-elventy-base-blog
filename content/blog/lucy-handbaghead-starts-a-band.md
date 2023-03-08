@@ -1,6 +1,12 @@
-
-
-## Part 1: Lucy Handbaghead starts a band
+---
+title: Lucy Handbaghead Starts A Band
+description: This is a post on My Blog about agile frameworks.
+date: 2018-05-01
+tags:
+  - Lucy Handbaghead
+  - Linda Handbaghead
+---
+## Part 1
 
 [I think the word doc is slightly more up to date? Check edited dates]
 

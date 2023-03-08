@@ -1,7 +1,12 @@
-
-
-# Linda Handbaghead Has A Punch Up With Old Age
-
+---
+title: Linda Handbaghead Has A Punch Up With Old Age
+description: This is a post on My Blog about agile frameworks.
+date: 2018-05-01
+tags:
+  - Linda Handbaghead
+  - Lucy Handbaghead
+  - The Grim Bagger
+---
 ## Part 1
 
 Once upon a time in The Pretty Big Handbag...
@@ -12,7 +17,7 @@ Which, if you don't know, is a private room for women to do private stuff in, li
 
 Eat their freshly cut toenails...
 
-And - in Linda's case - do pelvic hip thruster exercises with large pieces of iron (and the occasional - from her perspective - lucky visitor).
+And - in Linda's case - do pelvic hip thruster exercises with large pieces of iron (and the occasional - from her perspective - lucky visitor)...
 
 Linda Handbaghead was driving a bulldozer full of makeup over her industrial-sized leopard-print handbag face.
 
