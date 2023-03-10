@@ -5,6 +5,8 @@ date: 2018-05-01
 tags:
   - Lucy Handbaghead
   - Linda Handbaghead
+  - Jordan Pitabreadhead
+  - Andrew Potatohead
 ---
 *For Ginnie, AKA Cafe Moaner, AKA Bench Grunter, AKA Expert Bum Wriggler*
 
@@ -162,12 +164,27 @@ So, that's when - as if by plot progressing magic - a bloke with a very shiny po
 
 Which was made out of straw and shedded hamster fur, so it wasn't all that an impressive feat after all.
 
-But that didn't stop him from flexing his potato pecks and baked-potato biceps - in fact, all his mash-potato muscles - in a self-congratulatory display of strength that
+But that didn't stop him from flexing his potato pecks and baked-potato biceps - in fact, all his mash-potato muscles - in a self-congratulatory display of unrivalled strength...
 
-He was wearing a jacket made out of foreskins, had a martial arts belt tied around his potato head, and was carrying a bunch of leaflets...
+Unrivalled by at least three of the human-headed hamsters, anyway...
 
-Which he immediately began to chuck out into the sea of dweebs, who snapped them up with the eagerness of 
+And those being the three hamsters who'd swapped all their muscles for jelly beans at the Muscly Jelly Bean Market down the road.
 
+Anyway, this potato-headed man was wearing a jacket made out of foreskins, sunglasses engraved with the phrase 'Bad Ass Potato Man', had a martial arts belt tied around his potato head, and was carrying a bunch of leaflets in his potato palms...
+
+Which he immediately began to chuck out into the sea of dweebs, who all started snapping them up with the eagerness of The Big Yo's most worshippy worshippers picking up his bar tabs.
+
+That's because the dweebs all knew who this potato head was...
+
+Which was evidenced by them screaming stuff like...
+
+"Look, it's Andrew Potatohead!"
+
+"Check out his washboard mash potato abs"
+
+Yes, it was Andrew Potatohead, the online phenomenon, and the face of
+
+And 
 
 
 
@@ -175,7 +192,9 @@ Follow me!
 
 And all the dweebs - and Jordan Pitabreadhead - along with their 
 
-That was until 
+That was until
+
+Evolution as a character?
 
 Toxic masculinity / smelly blokes.
 
