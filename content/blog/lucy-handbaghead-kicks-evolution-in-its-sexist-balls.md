@@ -148,9 +148,34 @@ And even make an appearance in The Bathroom Of Final Judgement in The Big Yo's M
 
 "I feel like we should belt him one for that Mum," said Lucy, "but I can't really be... bothered."
 
-"I mean, I'm actually not all that bothered," said Linda.
+"I mean, I'm actually not all that bothered either," said Linda, "he seems to be doing a good enough job of making a tit out of himself without our help."
+
+Some nearby dweeb erections throbbed sinfully at the mention of 'tit'.
 
 "Yer, if he carries on like that he's going to overcook his own pita bread head," said Lucy.
+
+So - perhaps for the first time in a Lucy Handbaghead story - a fight seemed like it *wasn't* going to break out.
+
+But then... what the hell would this story be about?
+
+So, that's when - as if by plot progressing magic - a bloke with a very shiny potato for a head kicked his way through the wall of the human-headed hamster enclosure...
+
+Which was made out of straw and shedded hamster fur, so it wasn't all that an impressive feat after all.
+
+But that didn't stop him from flexing his potato pecks and baked-potato biceps - in fact, all his mash-potato muscles - in a self-congratulatory display of strength that
+
+He was wearing a jacket made out of foreskins, had a martial arts belt tied around his potato head, and was carrying a bunch of leaflets...
+
+Which he immediately began to chuck out into the sea of dweebs, who snapped them up with the eagerness of 
+
+
+
+
+Follow me!
+
+And all the dweebs - and Jordan Pitabreadhead - along with their 
+
+That was until 
 
 Toxic masculinity / smelly blokes.
 
@@ -168,6 +193,8 @@ And The University of Hard Cocks was anything but gay.
 
 Kicking balls champ.
 
+NoFiddle agreement.
+
 part
 
 Something about transgender and binary stuff (for yourself if anything)
@@ -184,3 +211,5 @@ Mother Nature with her massive, leafy boobs
 You've made a religion... a cult out of evolution.
 
 Unselective natural selection.
+
+Jordan Pitabreadhead just super insecure and sexually repressed?
