@@ -11,7 +11,7 @@
 		<link rel="alternate" href="/feed/feed.json" type="application/json" title="{{ metadata.title }}">
 
 		{#- Uncomment this if you’d like folks to know that you used Eleventy to build your site!  #}
-		{#- <meta name="generator" content="{{ eleventy.generator }}"> #}
+		<meta name="generator" content="{{ eleventy.generator }}">
 
 		{#-
 		CSS bundles are provided via the `eleventy-plugin-bundle` plugin:
@@ -23,6 +23,17 @@
 
 		{#- Add an arbitrary string to the bundle #}
 		{%- css %}* { box-sizing: border-box; }{% endcss %}
+		{%- css %}.float { animation: float 100s linear infinite both; } 
+@keyframes float {
+   from { transform: translateX(-100%); }
+  to { transform: translateX(100vw); }
+}{% endcss %}
+{%- css %}img {
+  max-width: 20%;
+}
+img[width][height] {
+  height: auto; /* Preserve aspect ratio */
+}{% endcss %}
 		{#- Add the contents of a file to the bundle #}
 		{%- css %}{% include "public/css/index.css" %}{% endcss %}
 		{#- Or add from node_modules #}
@@ -49,6 +60,7 @@
 		</header>
 
 		<main id="skip">
+			<img src="img/lucycoinfloat.png" alt="LucyCoinFloat" class="float">
 			{{ content | safe }}
 		</main>
 
