@@ -19,3 +19,7 @@ I hope you enjoy reading them as much as I enjoy writing them.
 Cheers!
 
 Duncan
+
+This is me 👇
+
+<img src="./img/pinkduncan.jpg" alt="Duncan in a pink hat looking greasy"></img>
