@@ -22,4 +22,4 @@ Duncan
 
 This is me 👇
 
-<img src="./img/pinkduncan.jpg" alt="Duncan in a pink hat looking greasy"></img>
+{% image "./img/pinkduncan.jpg", "Duncan in a pink hat looking greasy" %}
