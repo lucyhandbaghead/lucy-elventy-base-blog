@@ -21,5 +21,3 @@ Cheers!
 Duncan
 
 This is me 👇
-
-{% image "./img/pinkduncan.jpg", "Duncan in a pink hat looking greasy" %}

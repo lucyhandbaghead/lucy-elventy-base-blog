@@ -52,7 +52,7 @@ Lucy and Linda looked at each other.
 
 A look that said one thing...
 
-And that thing was, 'We'll bloody see about that.'
+And that thing was, 'We'll bloody see about that'.
 
 They turned their back on the pooping monkey - much to his dismay because he was rather enjoying their attention - and marched off in the direction the words had come from...
 
@@ -160,7 +160,7 @@ So - perhaps for the first time in a Lucy Handbaghead story - a fight seemed lik
 
 But then... what the hell would this story be about?
 
-So, that's when - as if by plot progressing magic - a bloke with a very shiny potato for a head kicked his way through the wall of the human-headed hamster enclosure...
+So, that's when - as if by plot progression magic - a bloke with a very shiny potato for a head kicked his way through the wall of the human-headed hamster enclosure...
 
 Which was made out of straw and shedded hamster fur, so it wasn't all that an impressive feat after all.
 
@@ -168,9 +168,9 @@ But that didn't stop him from flexing his potato pecks and baked-potato biceps -
 
 Unrivalled by at least three of the human-headed hamsters, anyway...
 
-And those being the three hamsters who'd swapped all their muscles for jelly beans at the Muscly Jelly Bean Market down the road.
+And those being the three hamsters who'd swapped all their muscles for jelly beans at the Muscly Jelly Bean Market down the road from the zoo.
 
-Anyway, this potato-headed man was wearing a jacket made out of foreskins, sunglasses engraved with the phrase 'Bad Ass Potato Man', had a martial arts belt tied around his potato head, and was carrying a bunch of leaflets in his potato palms...
+Anyway, this potato-headed man was wearing a jacket made out of foreskins, sunglasses engraved with the phrase 'Bad Ass Potato Man', had a martial arts belt tied around his potato head, and was carrying a bunch of potatoey pamphlets in his potato palms...
 
 Which he immediately began to chuck out into the sea of dweebs, who all started snapping them up with the eagerness of The Big Yo's most worshippy worshippers picking up his bar tabs.
 
@@ -182,15 +182,58 @@ Which was evidenced by them screaming stuff like...
 
 "Check out his washboard mash potato abs"
 
-Yes, it was Andrew Potatohead, the online phenomenon, and the face of
+Yes, it was Andrew Potatohead, the very-manly (and potato-y) online phenomenon who'd amassed a huge following on Argue About Anything media platforms, like Twatter...
 
-And 
+He was the face of the Smelly Blokes movement...
+
+A last line of defence for persecuted manly men who believed that blokes should be allowed to parade around unwashed and stinking, even in an age when The Pretty Big Handbag had developed new and improved - and more inclusive - ways of living...
+
+Like washing with soap.
+
+And, boy, was this unwashed potato head doing his best to represent the cause!
+
+A few dweebs closest to him feinted, either to confirm this point... or because literally all the blood had rushed from their heads, our of their nether regions and gone off somewhere hot on holiday.
+
+Andrew Potatohead was also one of the designer-stubbled faces - and big time potato donar to - The Crisis In Tiny Willies for one very small reason that will remain firmly in his pants.
+
+Well, firmly if he can find someone to shout at, otherwise it stays a bit soft.
+
+Anyway, Andrew Potatohead straddled his buddy Jordan Pitabreadhead's shoulders - the aforementioned small reason not hindering him in doing so...
+
+And - as his mash-potato mouth moved into a spud-based smile - he began to read from his potato pamphlet...
+
+"You dweebs - who have yet to level up into real manly potato men like me, the awesome Andrew Potatohead - are invited to attend... The University Of Hard Cocks," he took a baked-potato breath and then continued, "where - for the price of everything you own and two fancy sports cars - I will teach you how to be real businessy potato men."
+
+There was a round of hysterical, screaming applause as - presumably - wombs started wandering the bodies of various members of the sea of dweebs and they threw their nickers at Andrew's potato face.
+
+Then Andrew Potatohead turned his potatoey eye pockets and baked-potato breath on Lucy and Linda...
+
+"No women allowed," he said, "because that would be gay. And The University of Hard Cocks is anything but gay."
+
+For the second time in this story, Lucy and Linda looked at each other with an expression that said, 'We'll bloody see about that'.
+
+It was also tinged with more than a hint of, 'The University Of Hard Cocks does seem a bit gay'.
+
+So, when Andrew Potatohead and Jordan Pitabreadhead, followed by the sea of dweebs, began to march out of the human-headed hamster enclosure...
+
+The two handbag-headed women followed...
+
+## Part 5
+
+[re-read last part, then write this part.]
+
+"Welcome to The School Of Hard Cocks," said Andrew Potatohead.
+
+His very small reason was rock hard.
+
+If said rock was made out of 
+
+"There are three rules..."
+
+Number 1,
 
 
-
-Follow me!
-
-And all the dweebs - and Jordan Pitabreadhead - along with their 
+At Andrew's bachelor pad, which stunk.
 
 That was until
 
