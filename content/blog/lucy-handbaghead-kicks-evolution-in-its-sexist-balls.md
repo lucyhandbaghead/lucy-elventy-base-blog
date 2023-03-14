@@ -164,15 +164,15 @@ So, that's when - as if by plot progression magic - a bloke with a very shiny po
 
 Which was made out of straw and shedded hamster fur, so it wasn't all that an impressive feat after all.
 
-But that didn't stop him from flexing his potato pecks and baked-potato biceps - in fact, all his mash-potato muscles - in a self-congratulatory display of unrivalled strength...
+But that didn't stop him from flexing his potato pecks and baked-potato biceps - in fact, all his mash-potato muscles - in a self-congratulatory display of unrivalled strength.
 
 Unrivalled by at least three of the human-headed hamsters, anyway...
 
 And those being the three hamsters who'd swapped all their muscles for jelly beans at the Muscly Jelly Bean Market down the road from the zoo.
 
-Anyway, this potato-headed man was wearing a jacket made out of foreskins, sunglasses engraved with the phrase 'Bad Ass Potato Man', had a martial arts belt tied around his potato head, and was carrying a bunch of potatoey pamphlets in his potato palms...
+Anyway, this potato-headed man was wearing a jacket made out of foreskins and sunglasses engraved with the phrase 'Bad Ass Potato Man', had a martial arts belt tied around his potato head, and was carrying a bunch of potatoey pamphlets in his potato palms...
 
-Which he immediately began to chuck out into the sea of dweebs, who all started snapping them up with the eagerness of The Big Yo's most worshippy worshippers picking up his bar tabs.
+Which he immediately - yes, right now - began to chuck out into the sea of dweebs, who snapped them up with the eagerness of The Big Yo's most worshippy worshippers paying off his bar tabs.
 
 That's because the dweebs all knew who this potato head was...
 
@@ -180,25 +180,33 @@ Which was evidenced by them screaming stuff like...
 
 "Look, it's Andrew Potatohead!"
 
-"Check out his washboard mash potato abs"
+"Check out his washboard mash potato abs!"
 
-Yes, it was Andrew Potatohead, the very-manly (and potato-y) online phenomenon who'd amassed a huge following on Argue About Anything media platforms, like Twatter...
+"I heard his semen is so potent he impregnated The Pretty Big Handbag itself!"
+
+Yes, it was Andrew Potatohead, the very-manly (and potatoey) online - as in on the Bagnet /Interbag - phenomenon who'd amassed a huge following on Argue About Anything media platforms, like Twatter.
 
 He was the face of the Smelly Blokes movement...
 
-A last line of defence for persecuted manly men who believed that blokes should be allowed to parade around unwashed and stinking, even in an age when The Pretty Big Handbag had developed new and improved - and more inclusive - ways of living...
+A last line of defence for persecuted manly - and not so manly, although don't tell them that - men who believed that blokes (any willy size) should be allowed to parade around unwashed and stinking, even in an age when The Pretty Big Handbag had developed new and improved - and more inclusive - ways of living...
 
 Like washing with soap.
 
-And, boy, was this unwashed potato head doing his best to represent the cause!
+And, boy, was this unwashed potato head doing his best to represent this nasally toxic cause!
 
-A few dweebs closest to him feinted, either to confirm this point... or because literally all the blood had rushed from their heads, our of their nether regions and gone off somewhere hot on holiday.
+A few of the dweebs closest to him feinted, either to confirm what I'm saying... or because all their blood had rushed from their heads, out of their nether regions and gone off somewhere hot on holiday.
 
-Andrew Potatohead was also one of the designer-stubbled faces - and big time potato donar to - The Crisis In Tiny Willies for one very small reason that will remain firmly in his pants.
+Andrew Potatohead was also one of the designer-stubbled faces of - and big time potato donar to - The Crisis In Tiny Willies for one very small reason that will remain firmly in his pants.
 
 Well, firmly if he can find someone to shout at, otherwise it stays a bit soft.
 
-Anyway, Andrew Potatohead straddled his buddy Jordan Pitabreadhead's shoulders - the aforementioned small reason not hindering him in doing so...
+Anyway, Andrew Potatohead had something to say...
+
+And because this part of the story is getting a bit long, we might as well here him say it in the next part...
+
+## Part 5
+
+Andrew Potatohead straddled his buddy Jordan Pitabreadhead's shoulders - the aforementioned small reason not hindering him in doing so...
 
 And - as his mash-potato mouth moved into a spud-based smile - he began to read from his potato pamphlet...
 
@@ -208,30 +216,57 @@ There was a round of hysterical, screaming applause as - presumably - wombs star
 
 Then Andrew Potatohead turned his potatoey eye pockets and baked-potato breath on Lucy and Linda...
 
-"No women allowed," he said, "because that would be gay. And The University of Hard Cocks is anything but gay."
+"No women allowed," he screeched in a very manly, er, screech, "because that would be gay. And The University of Hard Cocks is anything but gay."
 
 For the second time in this story, Lucy and Linda looked at each other with an expression that said, 'We'll bloody see about that'.
 
-It was also tinged with more than a hint of, 'The University Of Hard Cocks does seem a bit gay'.
+Their joint expression was also tinged with more than a hint of, 'The University Of Hard Cocks does sound a bit gay, doesn't it?'.
 
 So, when Andrew Potatohead and Jordan Pitabreadhead, followed by the sea of dweebs, began to march out of the human-headed hamster enclosure...
 
 The two handbag-headed women followed...
 
-## Part 5
+Thus ending this rather short part of the story, which - thinking about it - probably could of just been part of the last part...
 
-[re-read last part, then write this part.]
+But, oh well...
+
+## Part 6
 
 "Welcome to The School Of Hard Cocks," said Andrew Potatohead.
 
-His very small reason was rock hard.
+They - as in him, Jordan Pitabreadhead and the sea of dweebs - were all sitting in Andrew's bachelor potato pad, with wide-set legs to demonstrate to the world - or at least each other - that they all had sizeable reasons to accommodate...
 
-If said rock was made out of 
+Even if that size was on the small side.
 
-"There are three rules..."
+Lucy and Linda - two women, I must remind you - were going unseen and unnoticed in the crowd...
 
-Number 1,
+Which it has to be said was a rare occurance for them both, especially Linda.
 
+But their anonymity in the sea of dweebs was thanks to them wearing impenetrable disguises that completely transformed them from one gender into another, via a brief holiday in between...
+
+In other words, they'd popped fake moustaches on their beautiful handbag heads and Linda kept farting a lot...
+
+Which, admittedly, was less to do with her disguise and more to do with the big ham sandwhich she'd eaten on the way here.
+
+Anyway, back to the important stuff...
+
+Andrew Potatohead's small reason - tucked away in his skin-tight leather pants - was rock hard.
+
+If said rock was made out of jelly.
+
+And the jelly had been left in the sun to melt for a week or two.
+
+Anyway - again, trying to get back to the important stuff - Andrew was saying something, which I guess you'll want to hear...
+
+"There are eight rules at The University Of Hard Cocks..." he said, sticking up eight of his finger fries for those in the audience who were hard of counting, which was quite a few.
+
+"Rule number one, you do not talk about The University Of Hard Cocks (because I called it something embarrassing but it's too late to change the legal work)... rule number two, you DO NOT talk about The University Of Hard Cocks (because I called it something embarrassing but it's too late to change the legal work)... rule number three, if someone yells 'stop!', goes limp in your hands, or taps your bum, the lesson is over..."
+
+He took in a deep baked-potato breath and then continued...
+
+"Rule number four,
+
+Maybe Them Lot Who Shan't Be Named come crashing in looking for feminists, rawr
 
 At Andrew's bachelor pad, which stunk.
 
@@ -239,23 +274,12 @@ That was until
 
 Evolution as a character?
 
-Toxic masculinity / smelly blokes.
-
-Andrew Potatohead.
 
 Something University.
 
-The University Of Hard Cocks.
-
-No women allowed.
-
-Because that would be gay.
-
-And The University of Hard Cocks was anything but gay.
-
 Kicking balls champ.
 
-NoFiddle agreement.
+NoFiddle (fap) agreement.
 
 part
 
