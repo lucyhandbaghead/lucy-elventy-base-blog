@@ -240,15 +240,15 @@ Even if that size was on the small side.
 
 Lucy and Linda - two women, I must remind you - were going unseen and unnoticed in the crowd...
 
-Which it has to be said was a rare occurance for them both, especially Linda.
+Which it has to be said was a rare occurrence for them both, especially Linda.
 
 But their anonymity in the sea of dweebs was thanks to them wearing impenetrable disguises that completely transformed them from one gender into another, via a brief holiday in between...
 
-In other words, they'd popped fake moustaches on their beautiful handbag heads and Linda kept farting a lot...
+In other words - to compliment Linda's usual layer of stubble - they'd both popped fake moustaches on their beautiful handbag heads and Linda kept farting a lot...
 
-Which, admittedly, was less to do with her disguise and more to do with the big ham sandwhich she'd eaten on the way here.
+Which, admittedly, was less to do with her disguise and more to do with the big ham sandwich she'd eaten on the way here.
 
-Anyway, back to the important stuff...
+Anyway, back to the important, or at least plot progressing, stuff...
 
 Andrew Potatohead's small reason - tucked away in his skin-tight leather pants - was rock hard.
 
@@ -256,28 +256,97 @@ If said rock was made out of jelly.
 
 And the jelly had been left in the sun to melt for a week or two.
 
-Anyway - again, trying to get back to the important stuff - Andrew was saying something, which I guess you'll want to hear...
+Anyway - again, trying to get back to the so-called important stuff - Andrew was saying something, which I guess you'll want to hear...
 
 "There are eight rules at The University Of Hard Cocks..." he said, sticking up eight of his finger fries for those in the audience who were hard of counting, which was quite a few.
 
-"Rule number one, you do not talk about The University Of Hard Cocks (because I called it something embarrassing but it's too late to change the legal work)... rule number two, you DO NOT talk about The University Of Hard Cocks (because I called it something embarrassing but it's too late to change the legal work)... rule number three, if someone yells 'stop!', goes limp in your hands, or taps your bum, the lesson is over..."
+"Rule number one, you do not talk about The University Of Hard Cocks (because I called it something a bit embarrassing and it's too late to change the paper work)... rule number two, you DO NOT talk about The University Of Hard Cocks (because I called it something a bit embarrassing and it's too late to change the paper work)... rule number three, if someone yells 'stop!', goes limp in your hands, or taps your bum, then that's proper gay and - although there's nothing wrong with being gay, except it's a bit womanly - we're manly men, so you will be spanked by another manly man, maybe using rock hard cock... or a frisbee."
 
 He took in a deep baked-potato breath and then continued...
 
-"Rule number four,
+"Rule number four, actually... I've forgotten all the other rules. But, basically, they're something like everyone has to be naked and we all have to fight each other... because both of those things are extremely arousing... sorry, I mean manly! Extremely manly, dammit!"
+
+The sea of dweebs looked at each other, waves of insecurity rippling across their surface and washing up on a beach absent of self confidence, but with quite a few starfish.
+
+Jordan Pitabreadhead, on the other hand, was already bum naked, his skeletal frame and skeletal reason - as in his willy - on display for all to see...
+
+Provided all had a very strong microscope (maybe one designed for looking at human-headed ant reasons - as in willies) to get a good look at the latter.
+
+Andrew Potatohead stood up...
+
+And tore off his leather shirt...
+
+Leather trousers...
+
+And Leather pants...
+
+To reveal that he too was keeping the very strong microscope industry in business.
+
+"Right, you lot of bumders, get naked!" he shouted.
+
+And - not wanting to be accused of being unmanly - the sea of dweebs did as obeyed and turned into...
+
+The sea of bum naked dweebs.
+
+"Alright, now we cuddle... bugger, sorry! I mean fight. Now, we fight!" shouted Andrew.
+
+And he dove into the naked - and increasingly erect - crowd...
+
+## Part 7
+
+It was a good old fashioned punch up.
+
+Actually, it wasn't.
+
+It was a good old fashioned pile of naked men cuddling the crap out of each other...
+
+And then suddenly getting alarmed about what they were doing and limply punching each other in feigned disgust...
+
+Which would eventually - actually, rather quickly - result in another round of cuddling and kissing and a bit of fiddling...
+
+And which all climaxed in... well, actually, something unexpected (and, of course, quite a lot of semen)...
+
+As I'm about to relate.
+
+You see,
+
+"This is so gay," said Lucy matter-of-factly.
+
+"It is very gay, isn't it?" agreed Linda, her moustache falling halfway off her face so she looked like an undercover spy who's identity was about to be revealed...
+
+Which is pretty much what she was.
+
+Linda and Lucy win fight but revealed to be women
+
+Andrew Potatohead can't compute and his potatohead explodes.
+
+he is then rushed to jail
+
+Jordan Pitabreadhead and 'them'
+The Crisis In Tiny Willies.
+He goes 'full evolution'.
+Never go 'full evolution'.
+Otherwise you'll turn into a human-headed masturbating monkey...
+
+Which is exactly what happened to Jordan Pitabreadhead.
 
 Maybe Them Lot Who Shan't Be Named come crashing in looking for feminists, rawr
 
-At Andrew's bachelor pad, which stunk.
+part
 
-That was until
+Mother nature comes and sorts it all out.
+
+With her leafy body and big natural boobs.
+
+You've made a religion... a cult out of evolution you little bell end."
 
 Evolution as a character?
 
 
-Something University.
 
-Kicking balls champ.
+I forgot to mention...
+
+He's the 'Kicking Balls' champ.
 
 NoFiddle (fap) agreement.
 
@@ -294,7 +363,7 @@ part
 
 Mother Nature with her massive, leafy boobs
 
-You've made a religion... a cult out of evolution.
+"You've made a religion... a cult out of evolution you little bell end."
 
 Unselective natural selection.
 
