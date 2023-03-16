@@ -5,9 +5,8 @@ tags:
   - Lucy Handbaghead
   - Linda Handbaghead
 ---
+<!--- I think the word doc is slightly more up to date? Check edited dates --->
 ## Part 1
-
-[I think the word doc is slightly more up to date? Check edited dates]
 
 Once upon a time in The Pretty Big Handbag…
 
@@ -47,8 +46,6 @@ Maybe with a little spoon tapping and fork fiddling thrown in.
 
 And, little did she know, but without leaving her house - which is where she was making this big-band plan - she’d already found her first band member…
 
-[148]
-
 ## Part 2: Lucy Handbaghead starts a band
 
 As if reading Lucy’s mind, Lucy’s Mum - Linda Handbaghead - popped out of nowhere.
@@ -72,8 +69,6 @@ She just nodded her head…
 And, just like that, she had the first member of her band.
 
 Now, to find those other band mates…
-
-[150]
 
 ## Part 3: Lucy Handbaghead starts a band
 
@@ -105,8 +100,6 @@ Lucy pulled her saliva-covered Mum out of the bundle of leopards and dragged her
 
 And the next part of this story…
 
-[193]
-
 ## Part 4: Lucy Handbaghead starts a band
 
 A poster outside the ‘Bad Bands Aid’ listed the gig’s lineup.
@@ -132,8 +125,6 @@ And Linda was busy squeezing leopard-saliva out of her hair and into a small con
 However, they still went in.
 
 And we followed…
-
-[152]
 
 ## Part 5: Lucy Handbaghead starts a band
 
@@ -167,8 +158,6 @@ And they were playing on their phones while they sang it.
 
 And she dragged Linda up onto the stage…
 
-[230]
-
 ## Part 6: Lucy Handbaghead starts a band
 
 “Wanker?” sang Lady Loopy Lala Pants.
@@ -190,8 +179,6 @@ The famous bunch stopped singing their Wooooordllleee guesses and began to screa
 Then a fight broke out.
 
 And the crowd - finally - began to cheer…
-
-[99]
 
 ## Part 7: Lucy Handbaghead starts a band
 
@@ -224,8 +211,6 @@ And they began to sing…
 A proper song…
 
 Not about Wooooordllleee…
-
-[152]
 
 ## Part 8: Lucy Handbaghead starts a band
 
@@ -260,8 +245,6 @@ And - for the second time in this story - they performed their first ever song.
 This time, without interruption…
 
 It went like this…
-
-[202]
 
 ## Part 9: Lucy Handbaghead starts a band
 
@@ -320,8 +303,6 @@ Together they sang…
 
 They proceeded to mash their instruments - Lucy on the guitar, Linda on the boob drums - to musical smithereens.
 
-[274]
-
 ## Part 10: Lucy Handbaghead starts a band
 
 The crowd head banged.
@@ -372,8 +353,6 @@ Like this story…
 
 So, the blummin’ end.
 
-[267]
-
 ## Extra bit: Lucy Handbaghead starts a band
 
 Oh yeah, before I go, two things…
@@ -387,7 +366,3 @@ But also because most of the crowd had been crushed and lacerated to death by gi
 People would pay BIG MONEY (in capitals) for bootleg recordings of it in the future, let me tell you.
 
 Anyway, this is the real blummin’ end.
-
-[106]
-
-[Total 2088]
