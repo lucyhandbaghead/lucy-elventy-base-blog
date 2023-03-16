@@ -5,7 +5,7 @@ date: 2018-05-01
 tags:
   - Lucy Handbaghead
   - Linda Handbaghead
-  - Jordan Pitabreadhead
+  - Jordan Pittabreadhead
   - Andrew Potatohead
 ---
 *For Ginnie, AKA Cafe Moaner, AKA Bench Grunter, AKA Expert Bum Wriggler*
@@ -44,7 +44,7 @@ And were just busy happily watching the human-headed, furry-bodied monkey squeez
 
 Well, they were anyway until their attention was yanked elsewhere by a sentence that parachuted in on the wind like a bad-smelling monkey-poo...
 
-"And that is why women - especially handbag headed women - will always be inferior to the more powerful of our species... the man, especially those wearing the illustrious pita-bread hat."
+"And that is why women - especially handbag headed women - will always be inferior to the more powerful of our species... the man, especially those wearing the illustrious pitta-bread hat."
 
 A round of bad-smelling applause followed, sky-diving in on the next puff of wind.
 
@@ -74,9 +74,9 @@ Involuntarily ejaculation...
 
 And the inability to talk to anyone with a pair of boobs that wasn't their mum or a poster of their mum.
 
-Oh, and they were all wearing pita bread hats on their unanimously greasy heads...
+Oh, and they were all wearing pitta bread hats on their unanimously greasy heads...
 
-Which basically just means they have pita breads on their heads.
+Which basically just means they have pitta breads on their heads.
 
 The crowd was, of course, all men...
 
@@ -84,7 +84,7 @@ And on a scale of Alpha to Beta and all the way down to Omega - AKA the The Alph
 
 One where women - and anyone else who didn't identify as a big manly man - weren't invited.
 
-At the front of the room - standing on a hamster cage and gesturing with his hands like he was parting a great red sea, but in fact was parting a great sweaty sea - was a very thin man with a real pita bread for a head...
+At the front of the room - standing on a hamster cage and gesturing with his hands like he was parting a great red sea, but in fact was parting a great sweaty sea - was a very thin man with a real pitta bread for a head...
 
 And he was mid speech - declaration even - saying...
 
@@ -100,7 +100,7 @@ And they could no longer keep quiet...
 
 # Part 3
 
-"Oi pita bread head, what the hell are you on about?" shouted Lucy.
+"Oi pitta bread head, what the hell are you on about?" shouted Lucy.
 
 The sea of dweebs gasped.
 
@@ -112,17 +112,17 @@ But - despite all their blood rapidly rushing out of their arms and towards thei
 
 After all, this could be another viral moment...
 
-A clip of their pita-headed overlord owning some more 'boobed noobs' with his ferocious intellect and masterfully angular eyebrows...
+A clip of their pitta-headed overlord owning some more 'boobed noobs' with his ferocious intellect and masterfully angular eyebrows...
 
-And any one of these dweebs - yes even Nathan Neckbeard over there, four rows from the front, who had a bearded neck for a head - could be the lucky pita bread hat wearer who uploaded the clip to BagTube or BagTok or Instabag and got all the views.
+And any one of these dweebs - yes even Nathan Neckbeard over there, four rows from the front, who had a bearded neck for a head - could be the lucky pitta bread hat wearer who uploaded the clip to BagTube or BagTok or Instabag and got all the views.
 
-The pita bread headed man focused all of his watery-eyed attention on Lucy and Linda...
+The pitta bread headed man focused all of his watery-eyed attention on Lucy and Linda...
 
 Put his fingers together in an arched temple - presumably an act of prayer or - more than likely - self worship...
 
 And then launched this intellectual - or at least intelligible - attack on the two handbag-headed women...
 
-"My name is Jordan Pitabreadhead," he bellowed in a voice doing its best to sound post-pubescent, "and I have been sent here on a very important mission to fix The Crisis In Tiny Willies."
+"My name is Jordan Pittabreadhead," he bellowed in a voice doing its best to sound post-pubescent, "and I have been sent here on a very important mission to fix The Crisis In Tiny Willies."
 
 There was a slightly muted applause from the crowd - minus Lucy and Linda and the hamsters - as legs were crossed and heads were shook in a 'he's not talking about me and my big dong' gesture.
 
@@ -132,7 +132,7 @@ There was a slightly muted applause from the crowd - minus Lucy and Linda and th
 
 Who admirably seemed to be doing their best just to ignore what was going on in their enclosure.
 
-"A crisis in self esteem, self awareness and the ability to do push ups by the look of it!" said Linda, bending over into a sideways penguin pose.
+"A crisis in self esteem, self awareness and the ability to do push ups by the look of it!" said Linda, bending over into a Sideways Penguin pose.
 
 "There you go!" erupted Jordan Pittabreadhead, spitting angry cucumber and guacamole bits over the crowd.
 
@@ -154,7 +154,7 @@ And even make an appearance in The Bathroom Of Final Judgement in The Big Yo's M
 
 Some nearby dweeb erections throbbed sinfully at the mention of 'tit'.
 
-"Yer, if he carries on like that he's going to overcook his own pita bread head," said Lucy.
+"Yer, if he carries on like that he's going to overcook his own pitta bread head," said Lucy.
 
 So - perhaps for the first time in a Lucy Handbaghead story - a fight seemed like it *wasn't* going to break out.
 
@@ -206,7 +206,7 @@ And because this part of the story is getting a bit long, we might as well here 
 
 ## Part 5
 
-Andrew Potatohead straddled his buddy Jordan Pitabreadhead's shoulders - the aforementioned small reason not hindering him in doing so...
+Andrew Potatohead straddled his buddy Jordan Pittabreadhead's shoulders - the aforementioned small reason not hindering him in doing so...
 
 And - as his mash-potato mouth moved into a spud-based smile - he began to read from his potato pamphlet...
 
@@ -222,7 +222,7 @@ For the second time in this story, Lucy and Linda looked at each other with an e
 
 Their joint expression was also tinged with more than a hint of, 'The University Of Hard Cocks does sound a bit gay, doesn't it?'.
 
-So, when Andrew Potatohead and Jordan Pitabreadhead, followed by the sea of dweebs, began to march out of the human-headed hamster enclosure...
+So, when Andrew Potatohead and Jordan Pittabreadhead, followed by the sea of dweebs, began to march out of the human-headed hamster enclosure...
 
 The two handbag-headed women followed...
 
@@ -234,7 +234,7 @@ But, oh well...
 
 "Welcome to The School Of Hard Cocks," said Andrew Potatohead.
 
-They - as in him, Jordan Pitabreadhead and the sea of dweebs - were all sitting in Andrew's bachelor potato pad, with wide-set legs to demonstrate to the world - or at least each other - that they all had sizeable reasons to accommodate...
+They - as in him, Jordan Pittabreadhead and the sea of dweebs - were all sitting in Andrew's bachelor potato pad, with their legs spread wide apart to demonstrate to the world - or at least each other - that they all had sizeable reasons to accommodate...
 
 Even if that size was on the small side.
 
@@ -244,45 +244,47 @@ Which it has to be said was a rare occurrence for them both, especially Linda.
 
 But their anonymity in the sea of dweebs was thanks to them wearing impenetrable disguises that completely transformed them from one gender into another, via a brief holiday in between...
 
-In other words - to compliment Linda's usual layer of stubble - they'd both popped fake moustaches on their beautiful handbag heads and Linda kept farting a lot...
+In other words they'd both popped fake moustaches on their beautiful handbag heads - which complemented Linda's usual layer of stubble - and Linda kept farting a lot...
 
 Which, admittedly, was less to do with her disguise and more to do with the big ham sandwich she'd eaten on the way here.
 
 Anyway, back to the important, or at least plot progressing, stuff...
 
-Andrew Potatohead's small reason - tucked away in his skin-tight leather pants - was rock hard.
+Andrew Potatohead's small reason, tucked away in his skin-tight leather pants, was rock hard.
 
-If said rock was made out of jelly.
+If said rock was made out of jelly...
 
 And the jelly had been left in the sun to melt for a week or two.
 
-Anyway - again, trying to get back to the so-called important stuff - Andrew was saying something, which I guess you'll want to hear...
+Anyway - again, trying to get back to the so-called important stuff - Andrew was laying down some laws, presumably to penetrate them later...
 
 "There are eight rules at The University Of Hard Cocks..." he said, sticking up eight of his finger fries for those in the audience who were hard of counting, which was quite a few.
 
-"Rule number one, you do not talk about The University Of Hard Cocks (because I called it something a bit embarrassing and it's too late to change the paper work)... rule number two, you DO NOT talk about The University Of Hard Cocks (because I called it something a bit embarrassing and it's too late to change the paper work)... rule number three, if someone yells 'stop!', goes limp in your hands, or taps your bum, then that's proper gay and - although there's nothing wrong with being gay, except it's a bit womanly - we're manly men, so you will be spanked by another manly man, maybe using rock hard cock... or a frisbee."
+"Rule number one, you do not talk about The University Of Hard Cocks (because I called it something a bit embarrassing and it's too late to change the paper work)... rule number two, you DO NOT talk about The University Of Hard Cocks (because I called it something a bit embarrassing and it's too late to change the paper work)... rule number three, if someone yells 'stop!', goes limp in your hands, or taps your bum, then that's proper gay and - although there's nothing wrong with being gay, except it's a bit womanly - we're manly men, so you will be spanked by another manly man, maybe with their rock hard cock... or a frisbee."
 
 He took in a deep baked-potato breath and then continued...
 
 "Rule number four, actually... I've forgotten all the other rules. But, basically, they're something like everyone has to be naked and we all have to fight each other... because both of those things are extremely arousing... sorry, I mean manly! Extremely manly, dammit!"
 
-The sea of dweebs looked at each other, waves of insecurity rippling across their surface and washing up on a beach absent of self confidence, but with quite a few starfish.
+The sea of dweebs looked at each other, waves of insecurity rippling across its surface and washing up on a beach absent of self confidence, but with quite a few starfish.
 
-Jordan Pitabreadhead, on the other hand, was already bum naked, his skeletal frame and skeletal reason - as in his willy - on display for all to see...
+Jordan Pittabreadhead, on the other hand, was already bum naked, his skeletal frame and skeletal reason - as in his willy - on display for all to see...
 
 Provided all had a very strong microscope (maybe one designed for looking at human-headed ant reasons - as in willies) to get a good look at the latter.
 
-Andrew Potatohead stood up...
+Andrew Potatohead stood up.
 
-And tore off his leather shirt...
+He tore off his leather shirt...
 
 Leather trousers...
 
-And Leather pants...
+Leather pants...
+
+And threw the pair of rolled up leather socks that had been in those pants over his shoulder...
 
 To reveal that he too was keeping the very strong microscope industry in business.
 
-"Right, you lot of bumders, get naked!" he shouted.
+"Right, you lot of big not-gay bummers, get naked!" he shouted.
 
 And - not wanting to be accused of being unmanly - the sea of dweebs did as obeyed and turned into...
 
@@ -304,31 +306,72 @@ And then suddenly getting alarmed about what they were doing and limply punching
 
 Which would eventually - actually, rather quickly - result in another round of cuddling and kissing and a bit of fiddling...
 
-And which all climaxed in... well, actually, something unexpected (and, of course, quite a lot of semen)...
+And which all climaxed in... well, actually, something unexpected (but, of course, with the expected amount of semen, which was quite a lot)...
 
 As I'm about to relate.
 
-You see,
+You see, what the sea of naked bum dweebs - or whatever we're calling them - didn't realise was they had two very adept fighters in their midst...
+
+One, specifically, who had a black belt in kicking the crap out of pub landlords, other-worldly beings and anyone who looked at her - or her daughter - funny.
 
 "This is so gay," said Lucy matter-of-factly.
 
 "It is very gay, isn't it?" agreed Linda, her moustache falling halfway off her face so she looked like an undercover spy who's identity was about to be revealed...
 
-Which is pretty much what she was.
+Which is pretty much what was about to happen.
 
+For the bumpteenth time - which is one after umpteenth - one of the sea of bum naked dweebs tried to grab Linda...
+
+And for the bumpteenth time she smacked them in their bum fluff covered face...
+
+Which, just for the record, happened to be attached to a portable video game case head.
+
+Not to say that all portable video game case heads were door-licking dweebs...
+
+But this one was pretty damn door-licky and dweeby.
+
+Anyway, Linda's actions had drawn some unwanted attention...
+
+"You lads aren't fighting right," shouted Andrew Potatohead - he was wrapped around Jordan Pittabreadhead in the Marmalade On Toast yoga position - "you've got to let us cuddle you... not in a gay way, just in like a powerful entrepreneurial way. How else will you learn to be all businessy?"
+
+"I don't want to be cuddled by any of these dweebs," said Lucy.
+
+"And I don't want to be cuddled,"
+
+"You will do as I say!" shouted Andrew Potatohead, unwrapping himself from a sweating and tantrically exhausted Jordan Pittabreadhead.
+
+Once upnwrapped - and, if you looked really closely, still erect - he started to mash-potato march towards them.
+
+And for the third time in this story, Lucy and Linda looked at each other with an ever more familiar expression...
+
+It said 'We'll bloody see about that'.
+
+And they rolled up their sleeves and marched towards the potato headed man coming at them...
+
+## Part 8
+
+This time it really was a good old fashioned punch up...
+
+And a quick one at that!
+
+In fact, Linda dropped Andrew Potatohead in one  punch.
+
+And then they both - Lucy and Linda - proceeded to knock out every molecule of the sea of bum naked dweebs in single punches.
+
+Jordan Pittabreadhead was the only one left standing, cowering in a corner like a scared... well, man with a pitta bread for a head.
 Linda and Lucy win fight but revealed to be women
 
 Andrew Potatohead can't compute and his potatohead explodes.
 
 he is then rushed to jail
 
-Jordan Pitabreadhead and 'them'
+Jordan Pittabreadhead and 'them'
 The Crisis In Tiny Willies.
 He goes 'full evolution'.
 Never go 'full evolution'.
 Otherwise you'll turn into a human-headed masturbating monkey...
 
-Which is exactly what happened to Jordan Pitabreadhead.
+Which is exactly what happened to Jordan Pittabreadhead.
 
 Maybe Them Lot Who Shan't Be Named come crashing in looking for feminists, rawr
 
@@ -367,4 +410,4 @@ Mother Nature with her massive, leafy boobs
 
 Unselective natural selection.
 
-Jordan Pitabreadhead just super insecure and sexually repressed?
+Jordan Pittabreadhead just super insecure and sexually repressed?
