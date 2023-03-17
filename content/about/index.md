@@ -3,6 +3,7 @@ layout: layouts/base.njk
 eleventyNavigation:
   key: About
   order: 3
+permalink: "/about.html"
 ---
 # About Lucy Handbaghead
 
@@ -21,3 +22,5 @@ Cheers!
 Duncan
 
 This is me 👇
+
+{% image "./pinkhatduncan.jpg", "Duncan in a pink hat" %}
