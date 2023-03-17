@@ -365,32 +365,63 @@ That doesn't mean she killed him...
 
 Just laid him out for a few mash-potato minutes as his head re-starched back together.
 
-Meanwhile, in a series of spectacular one-hit wonders, they - as in Lucy and Linda - proceeded to knock out every moist particle making up the sea of bum naked dweebs...
+Meanwhile, in a series of spectacular one-hit wonders, Lucy and Linda proceeded to knock out every moist particle making up the sea of bum naked dweebs...
 
 Smashing it into the sea of bum naked, bruised and snivelling dweebs.
 
 Jordan Pittabreadhead was the only one left standing, cowering in a corner like a scared... well, man with a pitta bread for a head.
 
-By now, Lucy and Linda's impenetrable disguises had - proving this narrator's descriptive skills to be poor - been penetrated...
+By now - and outing this narrator's descriptive skills to be not very good - Lucy and Linda's impenetrable disguises had been penetrated...
 
-In other words, their moustaches had fallen off - and Linda had stopped farting - revealing that they were in fact, yes...
+In other words, their moustaches had fallen off a nd Linda had stopped farting, revealing that they were in fact, yes...
 
 Two handbag-headed women.
 
-Two handbag-headed woman who'd just kicked the potato and dweeb out of a bunch of so-called manly men.
+Two handbag-headed woman who'd just kicked the potato and dweeb out of a bunch of self-declared manly men.
 
-It was right about now that Andrew Potatohead regained consciousness to witness this fact and - presumably unable to compute what he was seeing - his potato head just...
+It was right about now that Andrew Potatohead regained consciousness to witness this fact and - presumably unable to compute what he was seeing - his reconstituted potato head...
 
-Exploded in a shower of baked-potato brain.
+Exploded in a shower of baked-potato brain!
 
-The Grim Bagger would be having baked beans on exploded potato head tonight!
+"Looks like The Grim Bagger will be having baked beans on exploded potato head tonight!" said someone...
 
+Oh wait, it wasn't someone, it was me - the speaker of this potatoey story...
 
-Linda and Lucy win fight but revealed to be women
+And I'll keep saying something, but in the next part...
 
-Andrew Potatohead can't compute and his potatohead explodes.
+## Part 9
 
-he is then rushed to jail
+Jordan Pittabreadhead wasn't cowering in the corner anymore...
+
+He was shaking with rage in the middle of the now ownerless bachelor potato pad.
+
+A rage that was as fierce as it was flaccid...
+
+And as scary as it was laughable...
+
+And considering all the human-headed hamsters - who'd followed everyone here from their enclosure - were rolling about on the floor in belly-busting stitches, it was both pretty scary and pretty laughable.
+
+Jordan Pittabreadhead brought his shaking fingers together in the most pointy temple shape you have probably ever seen...
+
+It was even pointier than the The Shart in the big smelly city of Londonbag...
+
+Even pointier than Le Human-Headed Hippo tower in Bagris...
+
+And definitely pointier than something in Ameribag / Bagmerica.
+
+Then, once his fingers were so arched they looked like they were going to snap, he unleashed this long-winded, biologically hyper-focused, cherry-picked and - let's be honest - quite embarrassing tirade.
+
+Brace yourself - if just to be bored for a moment...
+
+"Blah
+
+Lucy and Linda looked at each other...
+
+A different expression mirrored on their beautiful handbag-head faces this time.
+
+"Bloody hell, he's gone 'full evolution'," said Lucy to her Mum, "you never want to go full evolution."
+
+Jordan Pittabreadhead began to transform.
 
 Jordan Pittabreadhead and 'them'
 The Crisis In Tiny Willies.
