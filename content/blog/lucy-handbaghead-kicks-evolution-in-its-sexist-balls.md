@@ -323,29 +323,33 @@ For the bumpteenth time - which is one after umpteenth - one of the sea of bum n
 
 And for the bumpteenth time she smacked them in their bum fluff covered face...
 
-Which, just for the record, happened to be attached to a portable video game case head.
+Which, just for the record, happened to be plastered on a portable video game case head.
 
-Not to say that all portable video game case heads were door-licking dweebs...
+Not to suggest that all portable video game case heads were door-licking dweebs...
 
 But this one was pretty damn door-licky and dweeby.
 
 Anyway, Linda's actions had drawn some unwanted attention...
 
-"You lads aren't fighting right," shouted Andrew Potatohead - he was wrapped around Jordan Pittabreadhead in the Marmalade On Toast yoga position - "you've got to let us cuddle you... not in a gay way, just in like a powerful entrepreneurial way. How else will you learn to be all businessy?"
+"You lads aren't fighting the right way," shouted Andrew Potatohead - he was wrapped around Jordan Pittabreadhead in the Marmalade On Toast yoga position - "you've got to let us cuddle you... not in a gay way, just in like a powerful entrepreneurial way. How else will you learn to be all businessy?"
 
 "I don't want to be cuddled by any of these dweebs," said Lucy.
 
-"And I don't want to be cuddled,"
+"And I don't want to be cuddled at all," said Linda, who - apart from Lucy - didn't let anyone without industrial-grade sandpaper stubble or special bag powers cuddle her, naked or otherwise...
+
+In fact, some people said she'd nailed The Grim Bagger and The Big Yo on the same night.
+
+But some people also said The Pretty Big Handbag was actually a flat-pack wardrobe, so we probably shouldn't listen to some people.
 
 "You will do as I say!" shouted Andrew Potatohead, unwrapping himself from a sweating and tantrically exhausted Jordan Pittabreadhead.
 
-Once upnwrapped - and, if you looked really closely, still erect - he started to mash-potato march towards them.
+Once upnwrapped - and, if you look really closely, still erect - he started to mash-potato march towards them.
 
 And for the third time in this story, Lucy and Linda looked at each other with an ever more familiar expression...
 
-It said 'We'll bloody see about that'.
+It said, 'We'll bloody see about that'.
 
-And they rolled up their sleeves and marched towards the potato headed man coming at them...
+And they rolled up their sleeves and marched towards the potato headed man strutting towards them...
 
 ## Part 8
 
@@ -353,11 +357,35 @@ This time it really was a good old fashioned punch up...
 
 And a quick one at that!
 
-In fact, Linda dropped Andrew Potatohead in one  punch.
+In fact, Linda dropped Andrew Potatohead in one  punch...
 
-And then they both - Lucy and Linda - proceeded to knock out every molecule of the sea of bum naked dweebs in single punches.
+Her big potato-masher of a fist mashing his potato head and potato brain into... well, mash potato.
+
+That doesn't mean she killed him...
+
+Just laid him out for a few mash-potato minutes as his head re-starched back together.
+
+Meanwhile, in a series of spectacular one-hit wonders, they - as in Lucy and Linda - proceeded to knock out every moist particle making up the sea of bum naked dweebs...
+
+Smashing it into the sea of bum naked, bruised and snivelling dweebs.
 
 Jordan Pittabreadhead was the only one left standing, cowering in a corner like a scared... well, man with a pitta bread for a head.
+
+By now, Lucy and Linda's impenetrable disguises had - proving this narrator's descriptive skills to be poor - been penetrated...
+
+In other words, their moustaches had fallen off - and Linda had stopped farting - revealing that they were in fact, yes...
+
+Two handbag-headed women.
+
+Two handbag-headed woman who'd just kicked the potato and dweeb out of a bunch of so-called manly men.
+
+It was right about now that Andrew Potatohead regained consciousness to witness this fact and - presumably unable to compute what he was seeing - his potato head just...
+
+Exploded in a shower of baked-potato brain.
+
+The Grim Bagger would be having baked beans on exploded potato head tonight!
+
+
 Linda and Lucy win fight but revealed to be women
 
 Andrew Potatohead can't compute and his potatohead explodes.
