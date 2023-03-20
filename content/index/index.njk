@@ -9,7 +9,7 @@ permalink: "/index.html"
 {% image "./lotsoflucys.png", "Lots of Lucy Handbagheads" %}
 {% set postsCount = collections.posts | length %}
 {% set latestPostsCount = postsCount | min(numberOfLatestPostsToShow) %}
-<h1>Latest {{ latestPostsCount }} Post{% if latestPostsCount != 1 %}s{% endif %}</h1>
+<h1>Latest {{ latestPostsCount }} Stories</h1>
 
 {% set postslist = collections.posts | head(-1 * numberOfLatestPostsToShow) %}
 {% set postslistCounter = postsCount %}
@@ -17,7 +17,7 @@ permalink: "/index.html"
 
 {% set morePosts = postsCount - numberOfLatestPostsToShow %}
 {% if morePosts > 0 %}
-<p>{{ morePosts }} more post{% if morePosts != 1 %}s{% endif %} can be found in <a href="/blog/">the archive</a>.</p>
+<p>{{ morePosts }} more stories can be found in <a href="/blog/">the archive</a>.</p>
 {% endif %}
 
 {# List every content page in the project #}

@@ -16,7 +16,7 @@ tags:
 [Part 8](/{{ title | slugify }}/#part-8),
 [Part 9](/{{ title | slugify }}/#part-9),
 [Part 10](/{{ title | slugify }}/#part-10),
-[Extra Bit](/{{ title | slugify }}/#extra-bit),
+[Extra Bit](/{{ title | slugify }}/#extra-bit)
 
 ## Part 1
 
