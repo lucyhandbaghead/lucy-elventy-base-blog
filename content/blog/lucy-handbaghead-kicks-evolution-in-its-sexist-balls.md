@@ -373,11 +373,11 @@ Jordan Pittabreadhead was the only one left standing, cowering in a corner like 
 
 By now - and outing this narrator's descriptive skills to be not very good - Lucy and Linda's impenetrable disguises had been penetrated...
 
-In other words, their moustaches had fallen off a nd Linda had stopped farting, revealing that they were in fact, yes...
+In other words, their moustaches had fallen off and Linda had stopped farting, revealing that they were in fact, yes...
 
 Two handbag-headed women.
 
-Two handbag-headed woman who'd just kicked the potato and dweeb out of a bunch of self-declared manly men.
+Two handbag-headed women who'd just kicked the potato and dweeb out of a bunch of self-declared manly men.
 
 It was right about now that Andrew Potatohead regained consciousness to witness this fact and - presumably unable to compute what he was seeing - his reconstituted potato head...
 
@@ -387,7 +387,7 @@ Exploded in a shower of baked-potato brain!
 
 Oh wait, it wasn't someone, it was me - the speaker of this potatoey story...
 
-And I'll keep saying something, but in the next part...
+And I'll keep saying more stuff, but in the next part...
 
 ## Part 9
 
@@ -403,25 +403,98 @@ And considering all the human-headed hamsters - who'd followed everyone here fro
 
 Jordan Pittabreadhead brought his shaking fingers together in the most pointy temple shape you have probably ever seen...
 
-It was even pointier than the The Shart in the big smelly city of Londonbag...
+It was pointier than the The Shart in the big smelly city of Londonbag...
 
-Even pointier than Le Human-Headed Hippo tower in Bagris...
+Pointier than Le Human-Headed Hippo Tower in Bagris...
 
-And definitely pointier than something in Ameribag / Bagmerica.
+And definitely pointier than The Pink House in Not-Washed-In-A-While DC (District of Cucumbers) in Ameribag / Bagmerica.
+
+In other words, it was pretty pointy.
 
 Then, once his fingers were so arched they looked like they were going to snap, he unleashed this long-winded, biologically hyper-focused, cherry-picked and - let's be honest - quite embarrassing tirade.
 
-Brace yourself - if just to be bored for a moment...
+Brace yourself - if just to be bored for the duration of it...
 
-"Blah
+"No, no, NO! This cannot be! You two handbag-headed women cannot defy evolution in this way. You are the LESSER half of our species. In fact, if you do the manly maths and include all human-headed male animals you're only one quarter of our species while us brainy men are three quarters of it!"
+
+He took a wheezy pitta-bread breath and then carried on...
+
+"You are ruled by EMOTION! And all that other crap I said earlier! You cannot think straight, let alone do tax returns on your own. You need us. You need ME! Plus this... you bring every bad thing that has ever happened to you and your rampantly seductive kind on yourself. You are the despicable testosterone temptresses of noble men like me and the mashed-up mashed-potato pile that is now Andrew Potatohead. You dress like Barbag Dolls thrusting your boobies - YOUR BIG FAT BOOBIES - in our faces and then complain when we bury our heads in your sinful cleavages uninvited. You slap yourself up in makeup and then complain when us big brave manly men show you a tiny bit of interest by chasing you down the street and trying to pinch your big fat VICE-FILLED bums."
+
+He took another breath, even though the bright-red colour of his pitta-bread head suggested these breaths weren't doing much to calm him...
+
+"You ask for it you filthy slaggers! You belong in the kitchen! You belong in a sandwich for us men to eat whenever we're hungry! You belong in a bin bag with the rest of the rubbish! And now - NOW - you have the sexy cheek to take our manly jobs! In fact, the manliest job of all: punching stuff in the face. And you - especially you Linda Handbaghead - think you can beat up anyone in The Pretty Big Handbag and... and... and... and..." Jordan Pittabreadhead came out of his blood-level rising rage for a moment and looked at the pile of unconscious dweebs around him,"you can? You can beat up pretty much anyone in The Pretty Big Handbag? What is this? Who am I? What am I? Where's my MUMMY? MUMMY!"
+
+And then - using all of his pious academic learning - he added...
+
+"AAAAHHHH!!! OOOHH OOOHH, AHHH AHHH! OOOHHH! AAAAAHHHH!"
 
 Lucy and Linda looked at each other...
 
 A different expression mirrored on their beautiful handbag-head faces this time.
 
-"Bloody hell, he's gone 'full evolution'," said Lucy to her Mum, "you never want to go full evolution."
+"Bloody hell, he's gone 'full evolution'," said Lucy to her Mum, "you never want to go full evolution..."
 
-Jordan Pittabreadhead began to transform.
+And, as if on queue, Jordan Pittabreadhead began to transform...
+
+## Part 10
+
+I'm not sure if you've ever seen a man with a pitta bread for a head turn into a monkey with a human head...
+
+But it's actually a pretty quick and painless process!
+
+Not really...
+
+Going 'full evolution' as it was known in gardening Bagbook / Facebag groups was actually extremely painful.
+
+And it always invoked Mother Nature herself...
+
+Just to oversee what was happening because a manager could never really trust her staff to not be doing yoga or rolling around laughing instead of working...
+
+Which, in this case, she was right to be suspicious because her staff - the human-headed hamsters - were still rolling around in hysterics on the floor.
+
+So, there she was in all her green glory, Mother Nature herself...
+
+With her giant 300 year-old tree height, bodacious buxom body covered in leafs - except for her big fat bra-less fleshy boobs from which the rivers of all The Pretty Big Handbag constantly ran.
+
+She was standing over what just moments before had been Jordan Pittabreadhead who was now rapidly getting furrier over all his body and fleshier around his face...
+
+And she had these profound words to say in her voice, which sounded like flowers and thunderstorms rolled into one...
+
+"You've made a religion... a cult out of evolution you little bell end."
+
+Then she added, "And now it's time to go home."
+
+She gave him a little kick in his now monkey bum.
+
+## notes / to do
+
+Ameribag / Bagmerica
+
+Facebag / Bagbook (can't remember from other stories)
+
+"Maybe me and The Big Yo shouldn't have given you lot such tiny willies...
+
+"But it was kind of funny.
+
+"And we've got to get our kicks somewhere."
+
+Gives monkey jordan a nice big willy to masturbate in the human-headed monkey enclosure?
+
+Story comes full circle with last bit being Linda and Lucy watching him - or an anonymous monkey - beat one off furiously.
+
+Lovely.
+
+Mother nature turns up with a bunch of Them Lot Who Some People Find It Difficult To Name.
+
+Maybe just do a transgender / harry potter spin off story - Them Lot Who Some People Find It Difficult To Name! Be pretty funny, maybe
+
+Mother nature comes and sorts it all out.
+
+With her leafy body and big natural boobs.
+
+"You've made a religion... a cult out of evolution you little bell end."
+
 
 Jordan Pittabreadhead and 'them'
 The Crisis In Tiny Willies.
@@ -431,15 +504,9 @@ Otherwise you'll turn into a human-headed masturbating monkey...
 
 Which is exactly what happened to Jordan Pittabreadhead.
 
-Maybe Them Lot Who Shan't Be Named come crashing in looking for feminists, rawr
+Maybe Them Lot Who Some People Find It Difficult To Name come crashing in looking for feminists, rawr
 
 part
-
-Mother nature comes and sorts it all out.
-
-With her leafy body and big natural boobs.
-
-You've made a religion... a cult out of evolution you little bell end."
 
 Evolution as a character?
 
