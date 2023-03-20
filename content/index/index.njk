@@ -7,6 +7,7 @@ numberOfLatestPostsToShow: 3
 permalink: "/index.html"
 ---
 {% image "./lotsoflucys.png", "Lots of Lucy Handbagheads" %}
+
 {% set postsCount = collections.posts | length %}
 {% set latestPostsCount = postsCount | min(numberOfLatestPostsToShow) %}
 <h1>Latest {{ latestPostsCount }} Stories</h1>

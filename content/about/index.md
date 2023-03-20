@@ -2,9 +2,11 @@
 layout: layouts/base.njk
 eleventyNavigation:
   key: About
-  order: 3
+  order: 4
 permalink: "/about.html"
 ---
+{% image "../drawings/party-in-pants-part-4.png", "Party In Pants Part 4" %}
+
 # About Lucy Handbaghead
 
 Lucy Handbaghead is a woman with a handbag for a head.
