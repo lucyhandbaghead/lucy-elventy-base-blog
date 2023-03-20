@@ -6,6 +6,18 @@ tags:
   - Linda Handbaghead
 ---
 <!--- I think the word doc is slightly more up to date? Check edited dates --->
+[Part 1](/{{ title | slugify }}/#part-1),
+[Part 2](/{{ title | slugify }}/#part-2),
+[Part 3](/{{ title | slugify }}/#part-3),
+[Part 4](/{{ title | slugify }}/#part-4),
+[Part 5](/{{ title | slugify }}/#part-5),
+[Part 6](/{{ title | slugify }}/#part-6),
+[Part 7](/{{ title | slugify }}/#part-7),
+[Part 8](/{{ title | slugify }}/#part-8),
+[Part 9](/{{ title | slugify }}/#part-9),
+[Part 10](/{{ title | slugify }}/#part-10),
+[Extra Bit](/{{ title | slugify }}/#extra-bit),
+
 ## Part 1
 
 Once upon a time in The Pretty Big Handbag…
@@ -46,7 +58,7 @@ Maybe with a little spoon tapping and fork fiddling thrown in.
 
 And, little did she know, but without leaving her house - which is where she was making this big-band plan - she’d already found her first band member…
 
-## Part 2: Lucy Handbaghead starts a band
+## Part 2
 
 As if reading Lucy’s mind, Lucy’s Mum - Linda Handbaghead - popped out of nowhere.
 
@@ -70,7 +82,7 @@ And, just like that, she had the first member of her band.
 
 Now, to find those other band mates…
 
-## Part 3: Lucy Handbaghead starts a band
+## Part 3
 
 Lucy didn’t know any musical people - including her Mum, who she’d just hired as the drummerist in her new band…
 
@@ -100,7 +112,7 @@ Lucy pulled her saliva-covered Mum out of the bundle of leopards and dragged her
 
 And the next part of this story…
 
-## Part 4: Lucy Handbaghead starts a band
+## Part 4
 
 A poster outside the ‘Bad Bands Aid’ listed the gig’s lineup.
 
@@ -126,7 +138,7 @@ However, they still went in.
 
 And we followed…
 
-## Part 5: Lucy Handbaghead starts a band
+## Part 5
 
 The ‘Bad Bands Aid’ was popping.
 
@@ -158,7 +170,7 @@ And they were playing on their phones while they sang it.
 
 And she dragged Linda up onto the stage…
 
-## Part 6: Lucy Handbaghead starts a band
+## Part 6
 
 “Wanker?” sang Lady Loopy Lala Pants.
 
@@ -180,7 +192,7 @@ Then a fight broke out.
 
 And the crowd - finally - began to cheer…
 
-## Part 7: Lucy Handbaghead starts a band
+## Part 7
 
 The fight went down like this…
 
@@ -212,7 +224,7 @@ A proper song…
 
 Not about Wooooordllleee…
 
-## Part 8: Lucy Handbaghead starts a band
+## Part 8
 
 “We’re The Handbag Bandheads, and we’re going to blow your mother-floppy socks off - both of them!” bellowed Lucy.
 
@@ -246,7 +258,7 @@ This time, without interruption…
 
 It went like this…
 
-## Part 9: Lucy Handbaghead starts a band
+## Part 9
 
 “Like a virgin, fingered for the very first time…’ Linda started belting out in a vaguely sing-song voice trained on a thousand cigarettes.
 
@@ -303,7 +315,7 @@ Together they sang…
 
 They proceeded to mash their instruments - Lucy on the guitar, Linda on the boob drums - to musical smithereens.
 
-## Part 10: Lucy Handbaghead starts a band
+## Part 10
 
 The crowd head banged.
 
@@ -353,7 +365,7 @@ Like this story…
 
 So, the blummin’ end.
 
-## Extra bit: Lucy Handbaghead starts a band
+## Extra Bit
 
 Oh yeah, before I go, two things…
 

@@ -6,6 +6,16 @@ tags:
   - Lucy Handbaghead
   - The Grim Bagger
 ---
+[Part 1](/{{ title | slugify }}/#part-1),
+[Part 2](/{{ title | slugify }}/#part-2),
+[Part 3](/{{ title | slugify }}/#part-3),
+[Part 4](/{{ title | slugify }}/#part-4),
+[Part 5](/{{ title | slugify }}/#part-5),
+[Part 6](/{{ title | slugify }}/#part-6),
+[Part 7](/{{ title | slugify }}/#part-7),
+[Part 8](/{{ title | slugify }}/#part-8),
+[Part 9](/{{ title | slugify }}/#part-9),
+
 ## Part 1
 
 Once upon a time in The Pretty Big Handbag...
