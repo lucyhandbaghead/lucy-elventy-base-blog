@@ -7,6 +7,9 @@ tags:
   - Jordan Pittabreadhead
   - Andrew Potatohead
 ---
+
+{% image "./lucy-kicks-evolution-bw.png", "Lucy kicks Jordan Pittabreadhead in his balls" %}
+
 *For Ginnie, AKA Cafe Moaner, AKA Bench Grunter, AKA Expert Bum Wriggler*
 
 [Part 1](/{{ title | slugify }}/#part-1),
