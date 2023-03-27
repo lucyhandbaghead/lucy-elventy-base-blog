@@ -6,9 +6,10 @@ tags:
   - Linda Handbaghead
   - Jordan Pittabreadhead
   - Andrew Potatohead
+image: ./lucy-kicks-evolution.png
+imageDescription: Lucy kicks Jordan Pittabreadhead in his balls
 ---
-
-{% image "./lucy-kicks-evolution-bw.png", "Lucy kicks Jordan Pittabreadhead in his balls" %}
+{% image image, imageDescription %}
 
 *For Ginnie, AKA Cafe Moaner, AKA Bench Grunter, AKA Expert Bum Wriggler*
 
