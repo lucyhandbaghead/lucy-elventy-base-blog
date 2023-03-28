@@ -5,6 +5,8 @@ tags:
   - Linda Handbaghead
   - Lucy Handbaghead
   - The Grim Bagger
+image: ../index/lotsoflucys.png
+imageDescription: Lots of Lucy Handbagheads
 ---
 [Part 1](/{{ title | slugify }}/#part-1),
 [Part 2](/{{ title | slugify }}/#part-2),

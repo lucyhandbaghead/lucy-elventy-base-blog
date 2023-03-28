@@ -9,8 +9,6 @@ tags:
 image: ./lucy-kicks-evolution.png
 imageDescription: Lucy kicks Jordan Pittabreadhead in his balls
 ---
-{% image image, imageDescription %}
-
 *For Ginnie, AKA Cafe Moaner, AKA Bench Grunter, AKA Expert Bum Wriggler*
 
 [Part 1](/{{ title | slugify }}/#part-1),
@@ -421,9 +419,9 @@ Jordan Pittabreadhead brought his shaking fingers together in the most pointy te
 
 It was pointier than the The Shart in the big smelly city of Londonbag...
 
-Pointier than Le Human-Headed Hippo Tower in the lengthy bread loving city of Bagris / Paribag...
+Pointier than Le Human-Headed Hippo Tower in the lengthy bread loving city of Paribag...
 
-And definitely pointier than The Pink House in the city of Not-Washed-In-A-While DC (District of Cucumbers) in Ameribag / Bagmerica.
+And definitely pointier than The Pink House in the city of Not-Washed-In-A-While DC (District of Cucumbers) in Ameribag.
 
 In other words, it was pretty pointy.
 
@@ -540,34 +538,3 @@ They continued to watch the human-headed monkey go for it until he reached the d
 Then they walked out of the zoo...
 
 And into another story...
-
-## notes / to do
-
-Ameribag / Bagmerica
-
-Facebag / Bagbook (can't remember from other stories)
-
-Gives monkey jordan a nice big willy to masturbate in the human-headed monkey enclosure?
-
-Story comes full circle with last bit being Linda and Lucy watching him - or an anonymous monkey - beat one off furiously.
-
-Lovely.
-
-Mother nature turns up with a bunch of Them Lot Who Some People Find It Difficult To Name.
-
-Maybe just do a transgender / harry potter spin off story - Them Lot Who Some People Find It Difficult To Name! Be pretty funny, maybe
-
-I forgot to mention...
-
-He's the 'Kicking Balls' champ.
-
-NoFiddle (fap) agreement.
-
-part
-
-Something about transgender and binary stuff (for yourself if anything)
-
-They / them / them lot
-It's too hard to remember someone's new name... unless, you know, they're getting hitched under the mighty bright light of The Big Yo.
-
-"Don't bring me into this you little skinny bag of bones," came a tipsy voice from up high.

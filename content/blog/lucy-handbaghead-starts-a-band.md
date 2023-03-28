@@ -4,6 +4,8 @@ description: This is a post on My Blog about agile frameworks.
 tags:
   - Lucy Handbaghead
   - Linda Handbaghead
+image: ../index/lotsoflucys.png
+imageDescription: Lots of Lucy Handbagheads
 ---
 <!--- I think the word doc is slightly more up to date? Check edited dates --->
 [Part 1](/{{ title | slugify }}/#part-1),
