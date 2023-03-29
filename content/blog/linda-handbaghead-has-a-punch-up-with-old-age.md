@@ -5,6 +5,9 @@ tags:
   - Linda Handbaghead
   - Lucy Handbaghead
   - The Grim Bagger
+  - Big Han The Hairy Head Cutter
+  - The Pretty Big Handbag
+  - The Underbag
 image: ../index/lotsoflucys.png
 imageDescription: Lots of Lucy Handbagheads
 ---

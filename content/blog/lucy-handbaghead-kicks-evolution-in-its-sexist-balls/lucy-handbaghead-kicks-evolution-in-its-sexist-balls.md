@@ -6,10 +6,13 @@ tags:
   - Linda Handbaghead
   - Jordan Pittabreadhead
   - Andrew Potatohead
+  - The Pretty Big Handbag
 image: ./lucy-kicks-evolution.png
 imageDescription: Lucy kicks Jordan Pittabreadhead in his balls
 ---
-*For Ginnie, AKA Cafe Moaner, AKA Bench Grunter, AKA Expert Bum Wriggler*
+<div class="message-box">
+For Ginnie, AKA Cafe Moaner, AKA Bench Grunter, AKA Expert Bum Wriggler.
+</div>
 
 [Part 1](/{{ title | slugify }}/#part-1),
 [Part 2](/{{ title | slugify }}/#part-2),
