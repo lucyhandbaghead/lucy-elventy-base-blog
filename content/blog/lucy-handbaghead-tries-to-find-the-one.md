@@ -20,11 +20,13 @@ Anyway, she downloaded the dating apps onto her phone because you can sit on pho
 
 A fact Lucy's mum, Linda, regularly demonstrated by accidentally (but kind of on purpose) parking her industrial-sized behind on Lucy's phone - and any other phone in the area of designated derrière destruction.
 
-The apps Lucy downloaded were...
+Anyway - again - enough about bums (for now).
+
+The dating apps Lucy downloaded were...
 
 Minger...
 
-Big Bumble...
+Big Bum-ble...
 
 Willy Grinder...
 
@@ -34,21 +36,31 @@ OK Stupid (Get Off Me)...
 
 Too Good For You Singles...
 
-eHarmonica (a niche site for people who like putting harmonicas in tight, damp spaces)...
+eHarmonica (a niche app for people who like putting harmonicas in tight, damp spaces)...
 
 And Fanny Flap...
 
-An app for classy hipsters to meet up on and sleep in expensive tents and compare moustache swirls.
+An app for people with hips for heads - known as hipsters - who like beer with names like Fabulous Uninsured Antelope and Illustrious Pigeon Party (In My Pants), expensive tents with fires in them, curly-whirly-swirly moustaches, and, well... flapping fannies.
 
-Lucy spent a long time writing her dating profile...
+Once Lucy had downloaded these apps, she spent a long time writing her dating profile...
 
 At least 30 seconds.
 
 It read...
 
-"I like paddle boarding. Don't apply if you're not taller than a hamster standing up really tall." 
+"I like paddle boarding. Don't apply - yes, this is a job - if you're not taller than a human-headed hamster standing up really tall. PS, my mum will probably come with me on dates, so I hope you like being stared at by a buff handbag-headed walnut of a woman who'll clock you one if you try anything funny."
 
-Linda, "Core blimey, Luce, look at that something-head. Can I get in on this too? I like paddble-boarding!"
+That'll do, that'll do, Lucy girl, she said to herself with thoughts...
+
+And to us because, as you know, we've popped our ears into her handbag head and are listening to everything she's thinking.
+
+And with that, Lucy started swiping...
+
+## Part 2
+
+True to Lucy's profile prediction, Linda did decide to accompany her on some dates...
+
+She let her daughter know her chaperoning intentions by leaning over her shoulder and basically shouting, "Core blimey, Luce, look at that beer-bottle head's 24 pack! Can I get in on this dating action too? I like paddle boarding as much as the next leopard-print handbag head."
 
 "Mum, you've never been paddle boarding in your life," said Lucy, but she didn't bother to argue about her tagging along as she knew she'd come along whatever she said.
 
@@ -56,7 +68,7 @@ And, anyway, if one of these dates turned out to be a dud her Mum's massive bice
 
 But fights never break out in Lucy Handbaghead stories, so I doubt that'd be necessary...
 
-## Part 2
+## Part 3
 
 Something
 
